@@ -3,9 +3,9 @@
 
 **:lock: A globally innovative Web3 Chain Quotient platform！**
 
-**:rocket: Multidimensional application+value linkage+fair incentives.！**
+**:rocket: Multidimensional application+value linkage+fair incentives！**
 
-**:man: Global innovative chain commerce platform.！**
+**:man: Global innovative chain commerce platform！**
 
 ---
 ### Click on the top right corner of your browser to open the download
